@@ -11,5 +11,8 @@ Tenth Try!
 Eleventh Try!
 Twelfth Try!
 Thirteenth Try!
+Infinite Tries! :)
 
-12 hours wasted so far! :D
+16 hours wasted so far! :D
+
+Saturday and Sunday gone!
